@@ -4,8 +4,8 @@ momento, tan cegados por el deseo, que no pueden prever el dolor y la
 angustia que están destinados a seguir; e igual la culpa es de los que
 faltan a su deber por debilidad de la voluntad, que es lo mismo que decir
 por rehuir el trabajo y el dolor. Estos casos son perfectamente simples y
-fáciles de distinguir. En una hora libre, cuando nuestro poder de elección
-es libre y cuando nada impide que podamos hacer lo que más nos gusta, todos
+fáciles de distinguir. En una hora suelto, cuando nuestro poder de elección
+es suelto y cuando nada impide que podamos hacer lo que más nos gusta, todos
 los placeres deben ser bienvenidos y todos los dolores evitados, pero en
 ciertas circunstancias y debido a las exigencias del deber o las
 obligaciones de los negocios, ocurrirá con frecuencia que los placeres
